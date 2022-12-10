@@ -1,6 +1,6 @@
 This will one day be my portfolio website, but I'm missing one little thing... projects to fill it with! 
 
-After I get some projects under my belt, this amazing website template built by the fabulous @ajlkn will be sharper than two edged shovel.
+After I get some projects under my belt, this amazing website template built by the fabulous @ajlkn will be sharper than a two edged shovel.
 
 (I know no one really says that, but I just did.)
 
